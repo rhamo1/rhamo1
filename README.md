@@ -7,9 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [github.com/rhamo1](github.com/rhamo1)
 
-- 📝 I regularly write articles on [gospeldownloads.tumblr.com](gospeldownloads.tumblr.com)
-
-- 📫 How to reach me **rhamo1@outlook.com**
+- 📫 How to reach me **rhamon@rhamon.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
